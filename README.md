@@ -139,7 +139,6 @@ Visit [iLoveSong.ai](https://ilovesong.ai) today and experience the future of mu
 - Support: Available 24/7
 
 ## Links
-[Adobe Blog](https://community.adobe.com/t5/premiere-elements-discussions/the-ultimate-ai-music-generation-platform/m-p/15048139#M50959)
 ---
 
 *Copyright © 2024 iLoveSong.ai - All rights reserved*
