@@ -139,7 +139,6 @@ Visit [iLoveSong.ai](https://ilovesong.ai) today and experience the future of mu
 - Support: Available 24/7
 
 ## Links
-[Trustscore](https://www.scamadviser.com/check-website/easymusic.ai)
 ---
 
 *Copyright © 2024 iLoveSong.ai - All rights reserved*
