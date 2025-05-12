@@ -139,6 +139,8 @@ Visit [iLoveSong.ai](https://ilovesong.ai) today and experience the future of mu
 - Support: Available 24/7
 
 ## Links
+[patreon collection](https://www.patreon.com/collection/1494892)
+
 ---
 
 *Copyright © 2024 iLoveSong.ai - All rights reserved*
