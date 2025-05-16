@@ -140,6 +140,7 @@ Visit [iLoveSong.ai](https://ilovesong.ai) today and experience the future of mu
 
 ## Links
 [patreon collection](https://www.patreon.com/collection/1494892)
+[Tired of Struggling with Song Style Descriptions? Meet Our New Enhanced Style API!​​](https://www.patreon.com/posts/129087146)
 
 ---
 
