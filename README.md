@@ -144,6 +144,9 @@ Visit [iLoveSong.ai](https://ilovesong.ai) today and experience the future of mu
 
 [Unlock Your Musical Potential: EasyMusic.AI’s V6.0 Revolutionizes AI-Generated Music​](https://www.patreon.com/posts/129416632)
 
+[Tired of Struggling with Song Style Descriptions? Meet Our New Enhanced Style API!​​](https://www.patreon.com/posts/129087146)
+
+
 ---
 
 *Copyright © 2024 iLoveSong.ai - All rights reserved*
