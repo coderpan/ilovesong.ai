@@ -146,6 +146,7 @@ Visit [iLoveSong.ai](https://ilovesong.ai) today and experience the future of mu
 
 [Tired of Struggling with Song Style Descriptions? Meet Our New Enhanced Style API!​​](https://www.patreon.com/posts/129087146)
 
+[EasyMusic.AI Crowned Champion at Global AI Sound Innovation Awards: Why This Changes Everything for Music Creation](https://www.patreon.com/posts/130667366)
 
 ---
 
